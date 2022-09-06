@@ -1,4 +1,4 @@
-⭐️井喷福利⭐️ 地址发布页 👉 最新地址：https://jp9.xyz
+⭐️井喷福利⭐️ 地址发布页 👉 最新地址：https://jpfl.buzz
 
 永久发布页地址：https://jingpen.xyz
 

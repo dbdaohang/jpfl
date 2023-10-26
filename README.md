@@ -1,4 +1,4 @@
-⭐️井喷福利导航⭐️ 地址发布页 👉 最新地址：https://jp16.buzz
+⭐️井喷福利导航⭐️ 地址发布页 👉 最新地址：https://jp18.buzz
 
 永久发布页地址：https://jingpen.xyz
 

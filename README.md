@@ -1,6 +1,6 @@
-⭐️井喷福利导航⭐️ 地址发布页 👉 最新地址：https://jp18.buzz
+⭐️井喷福利导航⭐️ 地址发布页 👉 最新地址：https://jp39.buzz
 
-永久发布页地址：https://jingpen.xyz
+永久发布页地址：https://www.j726.com
 
 请牢记永久地址， Ctrl+D 收藏本页，方便找到回家的路!
 

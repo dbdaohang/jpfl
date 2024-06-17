@@ -1,6 +1,6 @@
 ⭐️井喷福利导航⭐️ 地址发布页 👉 最新地址：https://fabu.jp60.buzz
 
-永久发布页地址：https://www.j726.com
+永久发布页地址：https://r.japb.xyz/s/
 
 请牢记永久地址， Ctrl+D 收藏本页，方便找到回家的路!
 
